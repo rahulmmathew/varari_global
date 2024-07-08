@@ -1,0 +1,1 @@
+# varari_global
